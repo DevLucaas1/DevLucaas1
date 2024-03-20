@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🇧🇷 Welcome to my profile!
 🌱 Kindness makes the world a better place!<br><br>💬 Probably I'm coding my game right now<br>
 
 
